@@ -6,6 +6,5 @@
 <p align="center">
   <img width="357" height="455" src="https://files.catbox.moe/jsdz2u.gif">
  <p align="center">
-𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪 !
+𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪 + 𝘤+𝘩 𝘫𝘶𝘴𝘵 𝘢𝘴𝘬 𝘣𝘦𝘧𝘰𝘳𝘦 𝘱𝘭𝘦𝘢𝘴𝘦 𝘪𝘧 𝘺𝘰𝘶 𝘸𝘢𝘯𝘵 𝘵𝘰 ꒰ᐢ. .ᐢ꒱
     <p align="center">
-   + 𝘤+𝘩 𝘫𝘶𝘴𝘵 𝘢𝘴𝘬 𝘣𝘦𝘧𝘰𝘳𝘦 𝘱𝘭𝘦𝘢𝘴𝘦 !! ꒰ᐢ. .ᐢ꒱
